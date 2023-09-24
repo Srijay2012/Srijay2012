@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Srijay2012
+- 👀 I’m interested in html and css
+- 🌱 I’m currently learning html
+- 💞️ I’m looking to collaborate on html
+- 📫 How to reach me? The answer is discord
