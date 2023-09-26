@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning html
 - 💞️ I’m looking to collaborate on html
 - 📫 How to reach me? The answer is discord
--My discord id "srijay2012"
+-My discord id "Srijay2012"
